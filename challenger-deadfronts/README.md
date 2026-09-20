@@ -1,0 +1,1 @@
+This is a sheet metal drawing designed to be used for sendcutsend for the Challenger SL12(8-16)RN outdoor electrical box Dead Front cover. 
